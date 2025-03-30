@@ -1,7 +1,7 @@
 <div align="center">
 <˗ˏˋ ꒰ Hello!꒱ ˎˊ˗>
 <div align="center">
-<img src="https://media.discordapp.net/attachments/561969577957916673/1355997967278018694/clovegithub2.png?ex=67eaf704&is=67e9a584&hm=9bacff0828cb619b3a4c0fedfd5b1703065d737974e91f5e03f5e8bc66714674&=&format=webp&quality=lossless&width=1555&height=751">
+<img src="https://media.discordapp.net/attachments/561969577957916673/1355998525565042903/clovegithub2.png?ex=67eaf789&is=67e9a609&hm=3696ffb4021819593378baf3f5537c0ac1cf38b028ca64cfcd94d90583ad7ecd&=&format=webp&quality=lossless&width=1555&height=751">
 <div align="center">
 <·:¨༺ ♱ 𝙄 𝙖𝙢 𝙖𝙡𝙬𝙖𝙮𝙨 𝙤𝙥𝙚𝙣 𝙛𝙤𝙧 𝙘𝙝𝙖𝙩𝙩𝙞𝙣𝙜 ♱ ༻¨:·>
 <div align="center">
